@@ -1,0 +1,1 @@
+# slavko_mladenovikj_g7_basicjs
